@@ -1,1 +1,1 @@
-# vaquinha-solidaria.
+# vaquinha-solidaria
